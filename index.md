@@ -1,5 +1,6 @@
 ## HOLA MI VIDA
-Sabes amor? te amor como a nadei
+Sabes amor? te amor como a nadie.
+
 Sonara ñoño pero en esta pagina habran sorpresas para el 03/09/2021 asi que eso
 mi ideal es hacer algunas cositas aqui <3
 
