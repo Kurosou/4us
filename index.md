@@ -14,4 +14,4 @@ UPS ESTO TAMPOCO LO VERAS :3
 [Link](url) and ![Image](src)
 ```
 
-### No sabes cuanto te amo...and we’ll help you sort it out.
+### No sabes cuanto te amo...
